@@ -1,4 +1,3 @@
-Domina, [20.01.2022 10:15]
 ### Felix Zenz
 
 > CFO at Nvcked.
