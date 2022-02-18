@@ -1,6 +1,6 @@
 ### Felix Zenz
 
-> CFO at Nvcked.
+
 
 Hi👋, I am a Web Developer & Software Developer who loves Liverpool FC! I currently attend the HTBLA Kaindorf.
 
